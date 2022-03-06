@@ -1,6 +1,6 @@
 # JESUS
 God dammit\
 </br>
-<img src="https://user-images.githubusercontent.com/65897734/156914252-47e90c8f-a23e-41a5-803f-f16ce15bc2f6.png" width="300" height="400" /> <img src="https://user-images.githubusercontent.com/65897734/156914438-2a5d6abb-10c8-4112-9248-dfb6aefb480d.png" width="300" height="400" />
+<img src="https://user-images.githubusercontent.com/65897734/156914654-50551a82-6118-452e-8a26-ea1fa0056644.png" width="400" height="300" /> <img src="https://user-images.githubusercontent.com/65897734/156914665-c1ee3ad1-d616-41f8-80dd-e892df0dfbb9.png" width="300" height="400" />
 - Ngon trai :shit:
 - Đập trai :speak_no_evil:
